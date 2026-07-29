@@ -57,4 +57,7 @@ For questions about the workflow or data availability, please contact:
 
 Ahmed Attia
 Texas A&M AgriLife Research
+ahmed.attia3@outlook.com
+ahmedatia80@gmail.com
+amattia81@gmail.com
 
